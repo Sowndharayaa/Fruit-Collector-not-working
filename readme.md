@@ -1,2 +1,1 @@
-The link for the github:-
-https://sowndharayaa.github.io/Fruit-Collector-not-working/
+Page - (viewing it) - https://sowndharayaa.github.io/Fruit-Collector-not-working/
